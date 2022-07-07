@@ -1,2 +1,2 @@
 # special-needed-tool
-zxkmm.ys168.com
+https://zxkmm.ys168.com
